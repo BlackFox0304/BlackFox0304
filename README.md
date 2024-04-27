@@ -1,11 +1,3 @@
-Hi, I’m @BlackFox0304 nice to meet you :)
-
-I am starting to study programming so if I have any errors or if you have any suggestions don't hesitate to tell me
-
-you can contact me on Discord how : holatasbien
-
-thank you~
-
 ──────▄▀▄─────▄▀▄                     
 ─────▄█░░▀▀▀▀▀░░█▄                   
 ─▄▄──█░░░░░░░░░░░█──▄▄          
